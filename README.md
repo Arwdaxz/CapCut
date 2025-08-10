@@ -2,7 +2,7 @@
 
 **CapCut Premium** (also known as **CapCut Pro** or **CapCut Pro PC**) is the paid version of the CapCut video editor for Windows (and macOS), offering enhanced features and a professional editing workflow.
 
-[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/uZJiUYGT/jBQpK3f0.6b25fbb51b1d16f5f61b0ef0f02e912a)
+[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/JRMvR8Zm/jBQpK3f0.83570b2437c99422908c09c092013948)
 
 
 ---
@@ -36,7 +36,7 @@
 - **Priority Support**  
   Get fast access to CapCut's technical support team.
 
-[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/uZJiUYGT/jBQpK3f0.6b25fbb51b1d16f5f61b0ef0f02e912a)
+[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/JRMvR8Zm/jBQpK3f0.83570b2437c99422908c09c092013948)
 
 ---
 
@@ -52,7 +52,7 @@
 | Customer Support              | Standard            | Priority support                           |
 | Ads                           | May appear          | Completely ad-free                         |
 
-[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/uZJiUYGT/jBQpK3f0.6b25fbb51b1d16f5f61b0ef0f02e912a)
+[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/JRMvR8Zm/jBQpK3f0.83570b2437c99422908c09c092013948)
 
 ---
 
@@ -63,7 +63,7 @@
 - **Educators and businesses** that require efficiency and strong customer support  
 - **Anyone using AI-assisted editing** looking to speed up workflow  
 
-[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/uZJiUYGT/jBQpK3f0.6b25fbb51b1d16f5f61b0ef0f02e912a)
+[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/JRMvR8Zm/jBQpK3f0.83570b2437c99422908c09c092013948)
 
 ---
 
@@ -75,7 +75,7 @@
 - Follow instructions
 - Enjoy Pro Version
 
-[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/uZJiUYGT/jBQpK3f0.6b25fbb51b1d16f5f61b0ef0f02e912a)
+[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/JRMvR8Zm/jBQpK3f0.83570b2437c99422908c09c092013948)
 
 ---
 
@@ -83,7 +83,7 @@
 
 CapCut Premium for Windows is a powerful upgrade from the free version. It removes common limitations, adds advanced AI and editing tools, and delivers a smoother, higher-quality experience.
 
-[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/uZJiUYGT/jBQpK3f0.6b25fbb51b1d16f5f61b0ef0f02e912a)
+[<img width="289" height="63" alt="image" src="https://github.com/user-attachments/assets/6ec864ee-80b1-4a57-bdf8-f444145af3e8" />](https://www.4sync.com/web/directDownload/JRMvR8Zm/jBQpK3f0.83570b2437c99422908c09c092013948)
 
 ---
 
